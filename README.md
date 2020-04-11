@@ -1,0 +1,1 @@
+O que falar desse curso que mal conheço e já considero pakas?
